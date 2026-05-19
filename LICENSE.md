@@ -1,4 +1,4 @@
-# 
+# Best Vegas Pro for PC scripts is the best Vegas Pro for PC scripts with real-time-preview and mixing. Safe, reliable, and optimized for maximum performance.
 
 
 
